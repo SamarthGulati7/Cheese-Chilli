@@ -1,0 +1,1 @@
+ Cheese Chilli is a popular restaurant style Indo Chinese starter which is simply made by batter coating and deep frying paneer cubes which are further tossed with green chillies and green onions and oriental sauces to make this really scrumptious treat. Serve restaurant style cheese chilli as a starter or a accompaniment to main course.
